@@ -39,6 +39,3 @@ Please purchase the product from [Vector](https://www.vector.co.jp/soft/winnt/bu
 Please register the license obtained during the purchase process with this software.
 
 
-## Others
-
-[HP](https://yaonasu.blogspot.com/2025/11/ii-win-merge.html)
